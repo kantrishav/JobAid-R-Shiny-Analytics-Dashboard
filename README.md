@@ -6,11 +6,9 @@ Are you a job seeker or student navigating the competitive landscape of employme
 
 
 
-Discover H1B sponsoring companies tailored to your preferences, including industry, location, and company size.
+* Discover H1B sponsoring companies tailored to your preferences, including industry, location, and company size.
 
+* Gain a competitive edge by focusing on the top H1B sponsoring companies in your chosen industry.
 
-Gain a competitive edge by focusing on the top H1B sponsoring companies in your chosen industry.
-
-
-Use our Resume Keyword Generator to optimize your resume and increase its visibility to potential employers.
+* Use our Resume Keyword Generator to optimize your resume and increase its visibility to potential employers.
 
